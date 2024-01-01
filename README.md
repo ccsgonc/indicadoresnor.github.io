@@ -1,0 +1,1 @@
+# indicadoresnor.github.io
